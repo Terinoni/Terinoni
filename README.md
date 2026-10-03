@@ -89,7 +89,7 @@ Research on the environmental, social and governance dimensions of urban nature 
 
 **Selected publication:**
 
-> Mbatia, T. W. (2014). *Prospects for urban eco-tourism in Nairobi, Kenya: Experiences from the Karura Forest Reserve.* African Journal of Sustainable Development, 4(3), 184–198.
+Mbatia, T. W. (2016). Social-Political Analysis of Urban Greenspaces in Nairobi: Perspectives on the (Re)production and (Re)construction of Spatial Injustice in the Consumption of Public Nature Reserves in the City. PhD thesis, Université Bordeaux Montaigne.
 
 ---
 

@@ -246,11 +246,11 @@ I am interested in collaborating on research involving:
 
 ## Connect
 
-**LinkedIn:** [Add your LinkedIn URL]
+**LinkedIn:** https://www.linkedin.com/in/dr-wanjiru-mbatia-phd-3186b6236/
 
-**ORCID:** [Add your ORCID URL]
+**ORCID:** https://orcid.org/0000-0002-8084-9121
 
-**Google Scholar:** [Add your Google Scholar URL]
+**Google Scholar:** https://scholar.google.com/citations?user=IH-AbjEAAAAJ&hl=en
 
 **Email:** teresa.mbatia@uonbi.ac.ke
 
